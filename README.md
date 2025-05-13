@@ -1,7 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=phyooma&color=blue)
 
-Fuck no, I'm not making this aesthetic and proper. Bonus points if I sound high
-
 ***
 ***
 
@@ -35,7 +33,7 @@ I tend to go aggressive towards anyone sometimes, but it only happens if I'm not
 - Forsaken
 - Fundamental Paper Education
 - JoJo's Bizarre Adventure
-- Transformers (I only watched ROTB pls im new.)
+- Transformers
 
 ***
 ***
